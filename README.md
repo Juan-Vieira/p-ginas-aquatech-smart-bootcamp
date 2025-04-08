@@ -1,1 +1,1 @@
-# p-ginas-aquatech-smart-bootcamp
+# páginas-aquatech-smart-bootcamp
